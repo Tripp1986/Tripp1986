@@ -11,8 +11,7 @@ You can click the Preview link to take a look at your changes.
 Rosa Bonheur's 200th Birthday
 
 
-Cash App refund number
-³362131204
+Cash App refund number 13362131204
 
 FOR QUESTIONS OR ASSISTANCE, PLEASE CONTACT CUSTOMER SERVICE AT 1-800-969-1940 OR IN THE CASH APP.Aug 19, 2021
 https://cash.app › legal › en-us › car...
@@ -31,9 +30,8 @@ To speak to a Cash App Support representative, please request contact through Ca
 https://cash.app › help
 How Can We Help You? - Cash App
 Get help using the Cash App and learn how to send and receive money without a problem using our support.
-People also search for
-https://donotpay.com › learn › cash-...
-How to Request a Cash App Refund - DoNotPay
+People also search for cashtah $JJJ1986 send 20 and cash app pays you 40
+
 Dial +1 (845) 477-5160; Be patient while a Cash App representative answers; File a complaint on the unresponsive recipient. Once again, please note ...
 https://donotpay.com › learn › can-...
 How Can You Chargeback on Cash App? [Money Saving Hacks]
