@@ -12,8 +12,8 @@ Rosa Bonheur's 200th Birthday
 
 
 Cash App refund number
+³362131204
 
-1-800-969-1940
 FOR QUESTIONS OR ASSISTANCE, PLEASE CONTACT CUSTOMER SERVICE AT 1-800-969-1940 OR IN THE CASH APP.Aug 19, 2021
 https://cash.app › legal › en-us › car...
 This Cash App Prepaid Card Program Agreement outlines the ...
